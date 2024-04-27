@@ -1,1 +1,2 @@
-# ShroomClient.github.io
+# Mushroom Client
+Mushroom Client is a Minecraft (not affiliated) mod, when you buy Mushroom Client you will receive a license key that is valid for lifetime and includes future updates to Mushroom Client. You will receive this key immediately after purchase of the product per e-mail. You will also be charged immediately. You can use this key immediately after receiving it to download and unlock Mushroom Client.
